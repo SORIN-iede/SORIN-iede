@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... with everyone
 - 📫 How to reach me ... just DM, easy
 - 😄 Pronouns: ... nop3
-- ⚡ Fun fact: ... i have 3 boys <3
+- ⚡ Fun fact: ... i am the father of 3 boys <3
 
 <!---
 SORIN-iede/SORIN-iede is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
